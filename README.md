@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @xoelsouto
-- 👀 I’m interested in fish pathology
 - 📫 How to reach me :
       - Email:         xoel.souto.guitian@usc.es
       - LinkedIn:      www.linkedin.com/in/xoelsouto
